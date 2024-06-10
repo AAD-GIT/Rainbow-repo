@@ -1,4 +1,6 @@
 # Rainbow-repo
-It is beautifull to see
-Amazing feeling
-Kids like rainbow
+The rainbow is beautiful to see.
+Especially kids like to see rainbow.
+Rainbow has seven colors.
+I like rainbow.
+
